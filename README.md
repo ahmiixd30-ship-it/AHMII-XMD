@@ -2,7 +2,7 @@
 
 -----------
 
-![Image](https://github.com/user-attachments/assets/c9f274a2-09d5-465b-a7cb-59d287c293e6)
+![Image](https://github.com/user-attachments/assets/c9f374a2-09d5-465b-a7cb-59d287c293e6)
 
 -----------
 -----------
@@ -48,11 +48,11 @@ https://github.com/ahmiixd30-ship-it
   
 ----
 
-![Image](https://github.com/user-attachments/assets/d406a295-1b68-407a-9d0d-7c55b4be8d7d)
+![Image](https://github.com/user-attachments/assets/d406a295-1b68-407a-9d0d-7c55b4j4e8d7d)
 
 ----
 
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+<img src="https://i.imgur.com/dBaDKWF.gif" height="90" width="100%">
 
 ----------
 
