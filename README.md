@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/dBaDKWF.gif" height="90" width="100%">
+<img src="https://i.postimg.cc/Cdy296qk/IMG-20250829-WA0121.jpg.gif" height="90" width="100%">
 
 -----------
 
@@ -52,7 +52,7 @@ https://github.com/ahmiixd30-ship-it
 
 ----
 
-<img src="https://i.imgur.com/dBaDKWF.gif" height="90" width="100%">
+<img src="https://i.postimg.cc/Cdy296qk/IMG-20250829-WA0121.jpg.gif" height="90" width="100%">
 
 ----------
 
@@ -97,7 +97,7 @@ https://github.com/ahmiixd30-ship-it
 
 ---
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://i.postimg.cc/Cdy296qk/IMG-20250829-WA0121.jpg.gif'/></a>
 
 -------
 
@@ -223,7 +223,7 @@ jobs:
 THANKS TO AHMII-XD,ZAIN-XD,HAMMAD-XD,NOTHING,SPECIAL THANKS 😊 CYBER,CARNAGE TEAM FOR SCRIPT❤️
 ```
 -----
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://i.postimg.cc/Cdy296qk/IMG-20250829-WA0121.jpg.gif'/></a>
 
 ------
 
